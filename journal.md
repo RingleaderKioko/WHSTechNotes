@@ -1,1 +1,2 @@
-# August 27, 2025
+# September 2, 2025
+I used to think that computer science was building computers/animatronics, developing apps and websites, and 3d modeling. Since joning this class, I have learned I was technically correct. We have been learning code and how to modle online through unity. I'm not sure what we learned last year since I wasn't here, but I heard they used python, which is coding. I want to continue to learn code and modeling for video games so I can make them in the future.
