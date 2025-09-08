@@ -1,2 +1,4 @@
 # September 2, 2025
 I used to think that computer science was building computers/animatronics, developing apps and websites, and 3d modeling. Since joning this class, I have learned I was technically correct. We have been learning code and how to modle online through unity. I'm not sure what we learned last year since I wasn't here, but I heard they used python, which is coding. I want to continue to learn code and modeling for video games so I can make them in the future.
+# September 8, 2025
+When I'm older I wantto work on and make video games for a living. Computer science has allowed us to make the computers and programing tools used to make said games. Without computer science, I wouldn't have the tools I need in order to both design and program the games i want to unless we had these abilities. 
