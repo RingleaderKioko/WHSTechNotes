@@ -2,3 +2,11 @@
 I used to think that computer science was building computers/animatronics, developing apps and websites, and 3d modeling. Since joning this class, I have learned I was technically correct. We have been learning code and how to modle online through unity. I'm not sure what we learned last year since I wasn't here, but I heard they used python, which is coding. I want to continue to learn code and modeling for video games so I can make them in the future.
 # September 8, 2025
 When I'm older I wantto work on and make video games for a living. Computer science has allowed us to make the computers and programing tools used to make said games. Without computer science, I wouldn't have the tools I need in order to both design and program the games i want to unless we had these abilities. 
+# October 6,2025
+If I were in charge of a school, I would allow cellphones and chromebooks, as well as games with a timer like the 'screentime' feature on phones now. Students would only be allowed to play unblocked games for a certain amount of time every day and would need to use it wisely and appropriately. I would NOT allow ChatGPT or anyother AI Tool unless teacher specifically needed it and gave the reason why, then it would be allowed to the teacher but not students. Being allowed unblocked games for a limited time would improve students mood and give them and opportunity to relax and wind down from school work for a bit. This would ultimately and theoretically improve the school's moral and students would be happier. 
+# November 17, 2025
+I am definetly looking forward to this Thanksgiving break and doing nothing.
+# December 1, 2025
+Drone show technicians have to prepare, test, launch, and maintain the drones for light shows. They typically make anywhere from $40,000 to $60,000 in the state of Texas. To be a drone show technician, you need a FAA Part 107 Remote Piolt Certification along with maintinence/software skills from college certificates. I would not be a drone show tech since I cannot see past a certain distance.
+# December 15, 2025
+My plans for this winter break are to do much of nothing or drag my parents to a couple arcades with the money I get for christmas from my family. I also plan to play games with my online friend and invite two of my closest friends over.
